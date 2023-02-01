@@ -1,0 +1,1 @@
+# linknormal.github.io
